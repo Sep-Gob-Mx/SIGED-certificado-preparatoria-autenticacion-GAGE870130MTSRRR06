@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GAGE870130MTSRRR06
+GAGE870130MTSRRR06
